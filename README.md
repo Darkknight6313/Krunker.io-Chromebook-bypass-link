@@ -3,6 +3,6 @@ click while in login bypass
 
 https://krunker.io/
 
-https://bing.com
+https://google.com
 
 
