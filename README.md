@@ -2,5 +2,5 @@
 click while in login bypass
 https://krunker.io/
 https://bing.com
-ome.tv
+https://ome.tv
 
