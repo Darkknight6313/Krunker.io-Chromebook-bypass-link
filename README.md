@@ -9,4 +9,4 @@ https://play.geforcenow.com/mall/
 
 https://www.xbox.com/en-us/play
 
-https://open.spotify.com/
+
