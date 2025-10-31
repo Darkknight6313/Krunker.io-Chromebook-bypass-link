@@ -15,5 +15,9 @@ https://music.youtube.com
 
 https://starbreak.com
 
+https://youtube.com
+
+https://chatgpt.com
+
 
 
