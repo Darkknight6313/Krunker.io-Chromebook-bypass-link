@@ -21,6 +21,7 @@ https://chatgpt.com
 
 https://reddit.com
 
+https://tiktok.com
 https://crazygames.com
 
 https://poki.com
