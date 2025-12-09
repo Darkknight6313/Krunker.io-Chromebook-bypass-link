@@ -19,5 +19,10 @@ https://youtube.com
 
 https://chatgpt.com
 
+https://reddit.com
+
+https://crazygames.com
+
+https://poki.com
 
 
